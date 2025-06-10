@@ -1,3 +1,5 @@
+hi
+
 you may not know what the ben room is, let alone knowing what ben is.
 it all started in 2017. when i was a kid, my family used to give me 2 plushie cats as keychains connected with suction cups meant for sticking them in stuff.
 we didn't want just that. we wanted a cat
